@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Cactys12
+- 👀 I’m interested in Drawing and Coding (Godot)
+- 🌱 I’m currently learning Italian on Duolingo
+- 💞️ I’m looking to collaborate on Nothing!
+- 📫 How to reach me: ¯\_(ツ)_/¯
+- 😄 Pronouns: He, Him
+- ⚡ Fun fact: I'm a person :O
